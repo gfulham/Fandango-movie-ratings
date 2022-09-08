@@ -1,0 +1,1 @@
+fandango ratings scrap
